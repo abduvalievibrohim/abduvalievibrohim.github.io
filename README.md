@@ -1,1 +1,1 @@
-# abduvalievibrohim.github.io
+# Abduvaliyev Ibrohim
